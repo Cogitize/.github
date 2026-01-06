@@ -8,4 +8,4 @@ Have a project in mind? Let's talk.
 
 ---
 
-© 2025 Cogitize Solutions
+© 2026 Cogitize Solutions
